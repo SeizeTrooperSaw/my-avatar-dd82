@@ -1,4 +1,4 @@
-#  
+#  adopt me Script stealth is the best adopt me Script, featuring fly and private server access. Safe and powerful for all your needs.
 
 
 
